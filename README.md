@@ -10,3 +10,6 @@
 
 ## Kesan Pesan Cluster [11] Sejauh Ini 
 [Memberikan dampak relasi yang menyenangkan serta rangkaian kegiatan bersama.]
+
+## Harapan Kuliah
+[Saya dapat memberikan hasil study dengan benar dan memiliki Pengalaman dan menjadi Sukses.]
